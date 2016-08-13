@@ -1,2 +1,4 @@
 # secondyear
-Latest PDS notes by Mohan.
+Welcome Information Technologists .....
+Latest maths assignment 
+
